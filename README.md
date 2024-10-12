@@ -8,6 +8,10 @@
 ![6](https://github.com/user-attachments/assets/68d91f23-9dea-4d70-b96d-2d68942bd915)
 ![7](https://github.com/user-attachments/assets/6d2b1c06-a5e5-4c1a-a38b-700d0b196822)
   
+
+our products are sold only for testing, studying, or informational purposes
+
+
 contact : https://t.me/codepyx
 
 
